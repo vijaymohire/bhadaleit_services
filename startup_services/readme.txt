@@ -1,0 +1,1 @@
+STARTUP SERVICES like startup entreprenuership programs, accelerators, Govt grants, seed investments, Market assessments, pre-seed valuation, term sheets, registerd agents, virtual office setup, office setup, offer management, office setup etc  
