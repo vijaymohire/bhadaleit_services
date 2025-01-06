@@ -1,0 +1,1 @@
+REAL ESTATE related services like datacenter layouts, licenses, constructions, extensions, landscaping, boards, taxes, byelaws, zoning, corporate management, Govt related compliances, safety and risk management
