@@ -1,0 +1,1 @@
+RETAIL industry related services like inventory manaement, purchase orders, best buying, economic ordering, cold storage, package of perishable goods, labeling, boxing, transport, invoice, receipts, taxes, farm to plate management, cold storage, ready to use products, imports etc
