@@ -1,0 +1,1 @@
+INDUSTRIAL SERVICES and consultation for adapting emerging and newer technologes, quantum, DNA computing, bio-chemcial engineering, industrial innovations, 4th and 5th Industrial revolutions, Industry 4.0 practices, Six Sigma, Quality processes, ISO, etc 
