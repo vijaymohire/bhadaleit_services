@@ -1,0 +1,1 @@
+MANAGERIAL SERVICES related files, procedures, charters, methods, process flow, communications, risk management, project scheduling, program managament, portfolios, invesments, partners, triages, finance management, investments, product ideas etc 
